@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Stew@art How can i assist you today 
-- 👀 I’m interested in Mostly everything besides coding 
+- 👀 I’m interested in Mostly everything besides coding .
 - 🌱 I’m currently learning how to code
 - 💞️ I’m looking to collaborate on Digital Design
 - 📫 How to reach me From my email stu.stewartt1@mishawaka.k12.in.us
